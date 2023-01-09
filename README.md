@@ -20,7 +20,7 @@
 
 **ОПД**
 * [Введение в психологию](https://drive.google.com/drive/folders/1DPZKCSNq0PErqnSdhsx__K_Yd9_7E_fG?usp=share_link)
-* [Педагогический дизайн](https://drive.google.com/drive/folders/1a5W2PVBlvPp1BRjalcoOVcXMsBeBoIR5?usp=share_link)
+* [Инструменты компьютерного дизайна](https://drive.google.com/drive/folders/1a5W2PVBlvPp1BRjalcoOVcXMsBeBoIR5?usp=share_link)
 
 **Цифровая Культура**
 * [Введение в ЦК](https://drive.google.com/drive/folders/1UgZfYtLlstcVJNfg7YrW8ootaHNuGoBg?usp=share_link)
