@@ -32,3 +32,7 @@
 **[Основы интеллектуальной собственности](https://drive.google.com/drive/folders/1dvQ7Pztmd6VfKc6SV5eu3eXFegb4u9UO?usp=share_link)**
 
 **[Бизнес-модели](https://drive.google.com/drive/folders/1Mz32I7V0xSX56wXPCq6U_DW51WIaSAsw?usp=share_link)**
+
+**История**
+* [Реформы и реформаторы](https://drive.google.com/drive/folders/19eh-a88JbLr73ZauL-tS1ftId1rs1VKp?usp=share_link)
+* [Наука и техника](https://drive.google.com/drive/folders/1SwRJiAX4bqMfOuzb1MdAdDyec_Tq0xYu?usp=share_link)
