@@ -31,8 +31,6 @@
 
 **[Основы интеллектуальной собственности](https://drive.google.com/drive/folders/1dvQ7Pztmd6VfKc6SV5eu3eXFegb4u9UO?usp=share_link)**
 
-**[Бизнес-модели](https://drive.google.com/drive/folders/1Mz32I7V0xSX56wXPCq6U_DW51WIaSAsw?usp=share_link)**
-
 **[Философия](https://drive.google.com/drive/folders/13N4TjteNI-HtXoSUwEoB0rG8orRXQSEY?usp=share_link)**
 
 **История**
