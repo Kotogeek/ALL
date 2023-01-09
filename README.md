@@ -36,3 +36,5 @@
 **История**
 * [Реформы и реформаторы](https://drive.google.com/drive/folders/19eh-a88JbLr73ZauL-tS1ftId1rs1VKp?usp=share_link)
 * [Наука и техника](https://drive.google.com/drive/folders/1SwRJiAX4bqMfOuzb1MdAdDyec_Tq0xYu?usp=share_link)
+
+**[Английский](https://drive.google.com/drive/folders/1K1NiPcw6Cpa3hprUEXDy7YDoJh5ark2h?usp=share_link)**
