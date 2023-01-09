@@ -33,6 +33,8 @@
 
 **[Бизнес-модели](https://drive.google.com/drive/folders/1Mz32I7V0xSX56wXPCq6U_DW51WIaSAsw?usp=share_link)**
 
+**[Философия](https://drive.google.com/drive/folders/13N4TjteNI-HtXoSUwEoB0rG8orRXQSEY?usp=share_link)**
+
 **История**
 * [Реформы и реформаторы](https://drive.google.com/drive/folders/19eh-a88JbLr73ZauL-tS1ftId1rs1VKp?usp=share_link)
 * [Наука и техника](https://drive.google.com/drive/folders/1SwRJiAX4bqMfOuzb1MdAdDyec_Tq0xYu?usp=share_link)
